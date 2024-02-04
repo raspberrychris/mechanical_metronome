@@ -1,10 +1,6 @@
 ---
 title: "Affiliate Disclosure"
 description: "Affiliate disclosure description"
-date: "2024-01-11"
-author: "Mechanical Metronome"
-menu: "main"
-url: "/affiliate-disclosure/"
 ---
 
 ## Mechanical Metronome

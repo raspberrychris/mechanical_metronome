@@ -8,8 +8,6 @@ description:
 
 ### Our Rating For This Product
 
-
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
