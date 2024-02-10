@@ -18,8 +18,8 @@ fingerprintAlgorithm = "sha256"
 
 [header]
   layout = "basic" # valid options: basic, hamburger, hybrid, custom
-  logo = "img/capybara-zone.png"
-  # logoDark = "img/dark-logo.jpg"
+  logo = "img/mechanical-metronome-logo.jpeg"
+  # logoDark = ""
   showTitle = false
 
 [footer]
