@@ -149,14 +149,10 @@ Our mission is to bring the unwavering precision of mechanical metronomes to mus
 
 ⭐⭐⭐⭐⭐
 
-### Technical Details
-
 
 ### Customers Say about this product
 
-> 
-
-
+> This is a very nice looking metronome.
 
 ---
 
