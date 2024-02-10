@@ -14,84 +14,90 @@ At [Mechanical Metronome](MechanicalMetronome.co.uk), we understand the essence 
 
 ### Our Rating For This Product
 
-
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions | 12.24 x 12.24 x 21.59 cm; 544.31 Grams |
+|--------------------|----------------------------------------|
+| Item model number  | H611                                   |
+| Body Material      | Metal, plastic                         |
+| Colour             | Standard, Green                        |
+| Item Weight        | 544 g                                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> I got this for my stepdaughter for Christmas and she loves it. It helps with the tempo for her piano and guitars. Would recommend.
 
 ---
 
-
-## [Rayzm Mechanical Metronome  High Precision For All](/Rayzm-Mechanical-Metronome--High-Precision-For-All)
-[![Rayzm-Mechanical-Metronome--High-Precision-For-All](<https://m.media-amazon.com/images/I/61p6CN6iv8L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Rayzm-Mechanical-Metronome-Instruments-Traditional/dp/B071S9GDWR/ ?tag=mechanicalmetronomes-21>)[![Rayzm-Mechanical-Metronome--High-Precision-For-All](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Rayzm-Mechanical-Metronome-Instruments-Traditional/dp/B071S9GDWR/ ?tag=mechanicalmetronomes-21>)
+## [Rayzm Mechanical Metronome High Precision For All](/Rayzm-Mechanical-Metronome-High-Precision-For-All)
+[![Rayzm-Mechanical-Metronome-High-Precision-For-All](<https://m.media-amazon.com/images/I/61p6CN6iv8L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Rayzm-Mechanical-Metronome-Instruments-Traditional/dp/B071S9GDWR/ ?tag=mechanicalmetronomes-21>)[![Rayzm-Mechanical-Metronome-High-Precision-For-All](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Rayzm-Mechanical-Metronome-Instruments-Traditional/dp/B071S9GDWR/ ?tag=mechanicalmetronomes-21>)
 
 ### Our Rating For This Product
 
-
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material:          | Strong hard plastic casing & plastic mechanism inside |
+|--------------------|-------------------------------------------------------|
+| Tempo range:       | 40~208 bpm                                            |
+| Beat:              | 0,2,3,4,6                                             |
+| Tempo Tolerance:   | ＜ 1%                                                 |
+| Power:             | winding-up mechanism (no battery needed)              |
+| Product Dimension: | 20 * 10,5 * 12 cm                                     |
+| Weight:            | 650 g                                                 |
 
 ### Customers Say about this product
 
-> 
-
-
+> Really nice metronome for the price! Sturdy with a good sound timing click and first beat bell that can be adjusted according to time signature. Nice, traditional, no fuss usability unlike the many digital download metronomes that can overcomplicate matters. Well packaged with transportation locks to protect mechanism. I like the gloss black finish with gold lettering/numbering. Good legibility for eyes that aren't as sharp as they used to be. Great value for money.
 
 ---
-
 
 ## [Mechanical Metronome Loud Sound Piano Drum Violin Guitar](/Mechanical-Metronome-Loud-Sound-Piano-Drum-Violin-Guitar)
 [![Mechanical-Metronome-Loud-Sound-Piano-Drum-Violin-Guitar](<https://m.media-amazon.com/images/I/61XkJUT0luL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Mechanical-Metronome-Violin-Guitar-Saxophone/dp/B08HPYPLX5/ ?tag=mechanicalmetronomes-21>)[![Mechanical-Metronome-Loud-Sound-Piano-Drum-Violin-Guitar](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Mechanical-Metronome-Violin-Guitar-Saxophone/dp/B08HPYPLX5/ ?tag=mechanicalmetronomes-21>)
 
 ### Our Rating For This Product
 
-
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions | 23.8 x 14.71 x 13.11 cm; 531 Grams |
+|--------------------|------------------------------------|
+| Colour             | Blue                               |
+| Item Weight        | 531 g                              |
+| Item Weight        | 540 g                              |
 
 ### Customers Say about this product
 
-> 
-
-
+> Absolutely love this metronome. I already own a wind up mechanical one, but this one is extremely versatile. Lots of different sound options including voice. Excellent battery life. Great visuals. Highly, highly recommended.
 
 ---
-
 
 ## [Hoseyin Mechanical Metronome Universal Metronome For Piano Guitar](/Hoseyin-Mechanical-Metronome-Universal-Metronome-For-Piano-Guitar)
 [![Hoseyin-Mechanical-Metronome-Universal-Metronome-For-Piano-Guitar](<https://m.media-amazon.com/images/I/61yI2iTFuNL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/HOSEYIN-Mechanical-Metronome-Universal-Instruments/dp/B08R34WS4Y/ ?tag=mechanicalmetronomes-21>)[![Hoseyin-Mechanical-Metronome-Universal-Metronome-For-Piano-Guitar](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/HOSEYIN-Mechanical-Metronome-Universal-Instruments/dp/B08R34WS4Y/ ?tag=mechanicalmetronomes-21>)
 
 ### Our Rating For This Product
 
-
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions | 12.24 x 12.24 x 21.59 cm; 544.31 Grams |
+|--------------------|----------------------------------------|
+| Item model number  | H311                                   |
+| Body Material      | Metal                                  |
+| Colour             | standard, Black                        |
+| Size               | Classic                                |
+| Item Weight        | 544 g                                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> Bought for a student - she loved the design and the fact she could hear it while playing - the digital ones are too quiet but this was loud enough.
 
 ---
-
 
 ## [Martisan Mechanical Metronome For Guitar/Bass/Piano/Violin Track Beat And](/Martisan-Mechanical-Metronome-For-Guitar/Bass/Piano/Violin-Track-Beat-And)
 [![Martisan-Mechanical-Metronome-For-Guitar/Bass/Piano/Violin-Track-Beat-And](<https://m.media-amazon.com/images/I/61aOwNVgpXL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/MARTISAN-Mechanical-Metronome-Guitar-Precision/dp/B082PG856V/ ?tag=mechanicalmetronomes-21>)[![Martisan-Mechanical-Metronome-For-Guitar/Bass/Piano/Violin-Track-Beat-And](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/MARTISAN-Mechanical-Metronome-Guitar-Precision/dp/B082PG856V/ ?tag=mechanicalmetronomes-21>)
