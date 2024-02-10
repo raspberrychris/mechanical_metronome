@@ -18,7 +18,7 @@ fingerprintAlgorithm = "sha256"
 
 [header]
   layout = "basic" # valid options: basic, hamburger, hybrid, custom
-  logo = "img/mechanical-metronome-logo.jpg"
+  logo = "img/mechanical-metronome.png"
   # logoDark = ""
   showTitle = false
 
