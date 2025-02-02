@@ -1,18 +1,42 @@
 ---
 title: "About"
-description: ""
-author: "Mechanical Metronome"
+description: "The story behind my passion for mechanical metronomes"
+author: "Taylor Matthews"
 ---
 
-Welcome to my world of Mechanical Metronomes. I'm Taylor, the founder and the driving force behind this project.
+# A Lifelong Love Affair with Perfect Timing
 
-My adventure with Mechanical Metronome began not as a profession, but as a personal quest. It was a blend of curiosity and passion that led me down this path.
+Hi, I'm Taylor, and I've been obsessed with mechanical metronomes for over two decades. It all started when my piano teacher placed a beautiful wooden Maelzel metronome on her grand piano during one of my lessons. That steady, reassuring tick became the heartbeat of my musical journey.
 
-Over time, I noticed a void online for genuine, heartfelt advice and stories about Mechanical Metronome. That's when I decided to take the leap and start this project.
+## Why Mechanical Metronomes?
 
-The mission was clear: create a hub where Mechanical Metronome enthusiasts can find not just information, but inspiration and community.
+In today's digital age, many wonder why I'm so passionate about these traditional timekeepers. The answer lies in their soul - that perfect mechanical precision, the beautiful craftsmanship, and most importantly, the tangible connection to music they provide. There's something magical about watching the pendulum swing while you play, creating a visual and auditory rhythm that no digital device can replicate.
 
-So, whether you are new to Mechanical Metronome or have been in this field for years, I invite you to join us. Share, learn, and grow. After all, this journey is as much yours as it is mine.
+## My Journey
 
-Thank you for being here,
-Taylor
+After years of performing and teaching music, I've collected, tested, and fallen in love with countless mechanical metronomes. Each one has its own character, its own voice, and its own story. I've seen how the right metronome can transform a struggling student into a confident musician, and how these beautiful instruments become cherished companions on musical journeys.
+
+## Why I Created This Site
+
+I started this website because I believe every musician deserves to find their perfect timing companion. After spending countless hours answering questions from fellow musicians about mechanical metronomes, I realized there was a need for honest, experience-based guidance in choosing these essential tools.
+
+Here, you'll find:
+- Detailed reviews based on actual use in my teaching studio
+- Real experiences from my students and fellow musicians
+- Practical advice for choosing the right metronome for your needs
+- Tips for maintaining and getting the most from your mechanical metronome
+
+## My Promise to You
+
+Every metronome featured on this site has earned its place through rigorous testing in real musical situations. I personally use or have used each one in my teaching practice. My reviews are honest, detailed, and based on genuine experience - because I believe that's what fellow musicians deserve.
+
+## Let's Connect
+
+Whether you're a beginner looking for your first mechanical metronome or a seasoned professional seeking the perfect addition to your studio, I'm here to help. Feel free to reach out with questions, share your own experiences, or just connect over our shared love of these beautiful instruments.
+
+Thank you for being part of this journey,
+
+Taylor Matthews
+_Piano Teacher & Mechanical Metronome Enthusiast_
+
+P.S. Want to chat about metronomes? Drop me a line at taylor@mechanicalmetronome.co.uk - I'd love to hear your story!
